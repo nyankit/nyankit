@@ -1,8 +1,7 @@
 
-  
 <p align="center">
-
-  ![](https://i.pinimg.com/originals/4a/ee/5f/4aee5fc96d096c7174265448d02f08f2.gif)
+  <img src="https://i.pinimg.com/originals/44/c7/c6/44c7c6b22556b2a1683b4b07f3d19e78.gif" alt="animation" />
+</p>
   
 <p align="center">
   <a href="https://skittlescutehome.straw.page/">strawpage</a> ·
