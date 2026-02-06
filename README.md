@@ -1,4 +1,6 @@
-
+<p align="center">
+dude my life is such a stress why cant i be happy? im literally moody shit.
+  
 <p align="center">
   <img src="https://i.pinimg.com/originals/03/7d/1b/037d1b8ff12e45a513dc43bb32c36fbd.gif" />
 </p>
