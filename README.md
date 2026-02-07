@@ -10,6 +10,8 @@
   <a href="https://www.pinterest.com/blanketbows/">pinterest</a> ·
   <a href="https://bottleofmilkchan.atabook.org/">atabook</a> .
   <a href="https://guns.lol/nyankitatu">gunslol CLICK MEE</a>
+
   
 <p align="center">
-13- dni 18+ or 19+ pls iwec.!!
+  
+<img src="blob:https://www.tweetgen.com/75a7f33a-7c77-4fe6-822c-6d1d3cbca947" />
