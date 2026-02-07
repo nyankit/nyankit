@@ -1,8 +1,8 @@
 <p align="center">
-oh god, can i restart my life again?
+"The flowers and roses are natural and very beautiful."
   
 <p align="center">
-  <img src="https://i.pinimg.com/originals/03/7d/1b/037d1b8ff12e45a513dc43bb32c36fbd.gif" />
+  <img src="https://i.pinimg.com/originals/f3/fa/25/f3fa2598f9fabc10b8127c696bad0b76.gif" />
 </p>
   
 <p align="center">
