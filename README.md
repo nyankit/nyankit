@@ -1,6 +1,6 @@
 <p align="center">
   
-  <img src="https://i.pinimg.com/originals/f3/fa/25/f3fa2598f9fabc10b8127c696bad0b76.gif" />
+  <img src="https://i.pinimg.com/originals/8e/6d/8e/8e6d8e6c7a84b2561e90d94330134a67.gif" />
 </p>
   
 <p align="center">
@@ -10,5 +10,13 @@
   <a href="https://guns.lol/nyankitatu">gunslol CLICK MEE</a>
 
 <p align="center">
-  <img src="https://www.tiktok.com/@randomahhranter/video/7604065606777736471" width="60%" />
+<img src="https://blinkies.cafe/b/blinkiesCafe-Y2.gif" />
+</p> 
+<p align="center">
+<img src="https://blinkies.cafe/b/blinkiesCafe-vC.gif" />
 </p>
+<p align="center">
+<img src="https://blinkies.cafe/b/blinkiesCafe-ZV.gif" />
+</p>
+<p align="center">
+BD / EN / ARAB
