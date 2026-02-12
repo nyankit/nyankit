@@ -1,7 +1,5 @@
 <p align="center">
-"The flowers and roses are natural and very beautiful."
   
-<p align="center">
   <img src="https://i.pinimg.com/originals/f3/fa/25/f3fa2598f9fabc10b8127c696bad0b76.gif" />
 </p>
   
@@ -11,7 +9,6 @@
   <a href="https://bottleofmilkchan.atabook.org/">atabook</a> .
   <a href="https://guns.lol/nyankitatu">gunslol CLICK MEE</a>
 
-  
 <p align="center">
-  
-<img src="blob:https://www.tweetgen.com/75a7f33a-7c77-4fe6-822c-6d1d3cbca947" />
+  <img src="https://www.tiktok.com/@randomahhranter/video/7604065606777736471" width="60%" />
+</p>
