@@ -10,10 +10,10 @@
   <a href="https://guns.lol/nyankitatu">gunslol CLICK MEE</a>
 
 <p align="center">
-<img src="https://blinkies.cafe/b/blinkiesCafe-Y2.gif" />
+<img src="https://blinkies.cafe/b/blinkiesCafe-zU.gif" />
 </p> 
 <p align="center">
-<img src="https://blinkies.cafe/b/blinkiesCafe-vC.gif" />
+<img src="https://blinkies.cafe/b/blinkiesCafe-OR.gif" />
 </p>
 <p align="center">
 <img src="https://blinkies.cafe/b/blinkiesCafe-ZV.gif" />
