@@ -19,4 +19,4 @@
 <img src="https://blinkies.cafe/b/blinkiesCafe-ZV.gif" />
 </p>
 <p align="center">
-BD / EN / ARAB
+EN / ARAB / BD
