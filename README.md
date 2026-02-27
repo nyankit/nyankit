@@ -24,8 +24,9 @@
   
 <p align="center">
   
-  <img src="https://media.discordapp.net/attachments/1475149767976685600/1475471789999001650/stupido.png?ex=699d9baf&is=699c4a2f&hm=cb8f9b62f68e415db2cb1f69dc1987047ded121e65c8e03ee2094e65bbdd7181&=&format=webp&quality=lossless" />
+  <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/cee0cda9-1b34-42e7-9a3b-f9c3fdc9797f/dlk9se4-c071f90f-0523-4e64-9dd6-af70772533dd.png/v1/fill/w_233,h_215/stupido_by_daintymwinii2_dlk9se4-fullview.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7ImhlaWdodCI6Ijw9MjE1IiwicGF0aCI6Ii9mL2NlZTBjZGE5LTFiMzQtNDJlNy05YTNiLWY5YzNmZGM5Nzk3Zi9kbGs5c2U0LWMwNzFmOTBmLTA1MjMtNGU2NC05ZGQ2LWFmNzA3NzI1MzNkZC5wbmciLCJ3aWR0aCI6Ijw9MjMzIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmltYWdlLm9wZXJhdGlvbnMiXX0.RotR7EtishGXPeOoN-80meLsq91azVomvq7VnnXgNKs" />
 </p>
+
 
 <p align="center">
 EN / ARAB / BD
