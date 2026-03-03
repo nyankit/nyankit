@@ -32,5 +32,11 @@
 EN / ARAB / BD
   
 <p align="center">
+ppl who loves hazbin hotel please hvy dni .
+  
+<p align="center">
+19+ or 18+ iwec ok? i will respond slow or late if ionno u/friends (except very close friends)
+  
+<p align="center">
   
   <img width="490" height="233" alt="image" src="https://github.com/user-attachments/assets/dc0b8f96-f86d-46c8-9779-2b50f553bf14" >
