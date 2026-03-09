@@ -1,3 +1,7 @@
+<h5 align="center">
+  
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Hachi+Maru+Pop&pause=1000&color=F7EEEF&width=435&lines=*hit+sound*;%22do+you+have+any+ibuprofen%3F%22;%22i+got+a+headache+!!%22)](https://git.io/typing-svg)
+
 <p align="center">
   
   <img src="https://i.pinimg.com/originals/8e/6d/8e/8e6d8e6c7a84b2561e90d94330134a67.gif" />
