@@ -36,7 +36,7 @@
 EN / ARAB / BD
   
 <p align="center">
-ppl who loves hazbin hotel please hvy dni .
+ppl who loves or fan of hazbin hotel please hvy dni .
   
 <p align="center">
 19+ or 18+ iwec ok? i will respond slow or late if ionno u/friends (except very close friends)
