@@ -28,7 +28,7 @@
   
 <p align="center">
   
-  <img src="https://i.pinimg.com/originals/ce/4a/b7/ce4ab7d9470423c4eb7f9d3a399c70ac.gif" />
+  <img src="https://media.tenor.com/t99nF9qoCvsAAAAi/ribbons-cute.gif" />
 </p>
 
 
@@ -43,4 +43,5 @@ ppl who loves or fan of hazbin hotel please hvy dni .
   
 <p align="center">
   
-  <img width="490" height="233" alt="image" src="https://github.com/user-attachments/assets/dc0b8f96-f86d-46c8-9779-2b50f553bf14" >
+   <img src="https://media.tenor.com/t99nF9qoCvsAAAAi/ribbons-cute.gif" />
+   </p>
