@@ -4,7 +4,7 @@
 
 <p align="center">
   
-  <img src="https://media.tenor.com/iQ02ZbCfE5sAAAAi/neko-nekochan.gif" />
+  <img src="https://media.tenor.com/HZZMUaBDgdcAAAAj/neko-nekochan.gif" />
 </p>
   
 <p align="center">
