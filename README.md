@@ -6,6 +6,8 @@
   
   <img src="https://media.tenor.com/HZZMUaBDgdcAAAAj/neko-nekochan.gif" />
 </p>
+
+![](https://komarev.com/ghpvc/?username=nyankit&label=cotton+candies&color=ff69b4)
   
 <p align="center">
   <a href="https://skittlescutehome.straw.page/">strawpage</a> ·
