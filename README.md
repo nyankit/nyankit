@@ -38,6 +38,8 @@
 EN / ARAB / BD
   
 <p align="center">
+  NOTE; smh i want u guys to like not say bad words or weird jokes or else i will get uncomfortable.
+  
 ppl who loves or fan of hazbin hotel please hvy dni .
   
 <p align="center">
