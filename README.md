@@ -47,7 +47,7 @@ EN / ARAB / BD
   
   NOTE; smh i want u guys to like not say bad words or weird jokes or else i will get uncomfortable.
   
-ppl who loves or fan of hazbin hotel please hvy dni .
+ppl who uses c.ai or shit other apps like that dni ok, and i dont want hazbin hotel fans int w/ me sorry.
   
 <p align="center">
 19+ or adults iwec ok? i will respond late if ionno u/friends (unless cf)
