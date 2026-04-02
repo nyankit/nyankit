@@ -40,7 +40,7 @@
 
 
 <p align="center">
-EN / ARAB / BD
+EN / عربية / BD
   
 <p align="center">
   nonsharing Pierrot yume (im not rude, i dont bite ok?)
