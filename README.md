@@ -9,10 +9,11 @@
 ![](https://komarev.com/ghpvc/?username=nyankit&label=bunny+enterance&color=orange)
   
 <p align="center">
-  <a href="https://skittlescutehome.straw.page/">strawpage</a> ·
-  <a href="https://www.pinterest.com/blanketbows/">pinterest</a> ·
+  <a href="https://skittlescutehome.straw.page/">straw</a> ·
+  <a href="https://www.pinterest.com/blanketbows/">pint</a> ·
   <a href="https://bottleofmilkchan.atabook.org/">atabook</a> .
   <a href="https://guns.lol/nyankitatu">gunslol</a> .
+  <a href="https://pronouns.cc/@feverkitti">prns</a> .
 
 <p align="center">
 
