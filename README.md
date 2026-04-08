@@ -50,3 +50,8 @@ ppl who uses c.ai or shit other apps like that dni and i dont want hazbin hotel 
 <p align="center">
   
    <img src="https://media.tenor.com/KWhh3JLPNtAAAAAi/divider-banner.gif" />
+
+   <p align="center">
+   ponytown ppl dni list (HEAVY dni unfortunately)
+     
+   @WandererInLife @gunlolz @madebymsi @Stellalollies
