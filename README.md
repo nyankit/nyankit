@@ -6,7 +6,7 @@
   
 <img width="172" height="172" alt="image" src="https://github.com/user-attachments/assets/d19977fb-dd02-42af-b46c-425f0a02359b" />
 
-![](https://komarev.com/ghpvc/?username=nyankit&label=bunny+enterance&color=orange)
+<a href="https://hits.sh/github.com/nyankit/"><img alt="Hits" src="https://hits.sh/github.com/nyankit.svg?style=plastic&label=bunny%20enterance&color=f6ac3b&labelColor=4c2d2d"/></a>
   
 <p align="center">
   <a href="https://skittlescutehome.straw.page/">straw</a> ·
