@@ -56,7 +56,7 @@ ppl who uses c.ai or shit other apps like that dni and i dont want hazbin hotel 
    <p align="center">
    ponytown ppl dni list (hvy dni)
      
-   @WandererInLife @gunlolz @madebymsi @Stellalollies @im-so-silly
+   @WandererInLife @gunlolz @madebymsi @Stellalollies @im-so-silly @@sperkxena
 <p align="center">
   
   <img src="https://media.tenor.com/yJ2SaYaPwUsAAAAi/pixel-clouds-discord-divider-clouds.gif" />
