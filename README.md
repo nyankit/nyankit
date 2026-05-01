@@ -16,7 +16,7 @@
   <a href="https://www.pinterest.com/blanketbows/">pint</a> ·
   <a href="https://bottleofmilkchan.atabook.org/">atabook</a> .
   <a href="https://guns.lol/nyankitatu">gunslol</a> .
-  <a href="https://pronouns.cc/@feverkitti">pronounces (pls check!) </a> .
+  <a href="https://pronouns.cc/@pupwuud">pronounces (pls check!) </a> .
 
 <p align="center">
 
