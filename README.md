@@ -11,6 +11,7 @@
   <a href="https://www.pinterest.com/blanketbows/">pint</a> ·
   <a href="https://bottleofmilkchan.atabook.org/">atabook</a> .
   <a href="https://pronouns.cc/@pupwood/">prns </a> .
+  <a href ="https://wishlist.com/ls/xrYLWz"> wishlist idk why i added this </a> .
 
   <p align="center">
     ${\color{#635c5c}\text{𓂅  mia ! nyan  . }}$
