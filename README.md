@@ -24,6 +24,8 @@
     
 <p align="center">
     EN/BD/AR
+  <p align="center">
+    pierrot nonsharing yume . kin / dbls dni
     
 <p align="center">
   
