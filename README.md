@@ -1,4 +1,7 @@
 <p align="center">
+  
+  <img src="https://64.media.tumblr.com/29600d89d35672aa01058c4668b997db/327384b74e3139b5-75/s500x750/f01207c937b89801a35da60c3a663553df1abf8f.gifv" width="303" />
+  
   <img src="https://64.media.tumblr.com/e4ed6be75aabb3b2542262541df457a9/6e334b685e896f5b-5c/s1280x1920/b5aa00980f3c0f63650630c76c1d999e7702f0b4.pnj" />
   
 <img src="https://media.discordapp.net/attachments/1514969642941022250/1546610929154654258/112f816121b343119f2f42070d4ba5da.gif?ex=6aa0692c&is=6a9f17ac&hm=c14e30c2b0c779f196783cd784c860581d80dc719d0ad1c1f3cee6e3286d6a42&=&width=512&height=419" />
