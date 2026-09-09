@@ -20,7 +20,7 @@ ${\color{#6B5353}\text{ic; @entua108}}$
 <summary>${\color{#6B5353}\text{short⠀info}}$</summary>
   
 <img src="https://64.media.tumblr.com/b5c499278243918bd2a99d8807aee064/c5589d06ec5bf682-75/s500x750/dac8696c5d21630e8d822b1254a53ef17ddd358b.gifv" width="69"/>
-${\color{#C06EB8}\text{Do not mention c.ai or other apps similar on me.}}$ <img src="https://64.media.tumblr.com/8ffef5cf0233f3a009502fc53565aa60/c5589d06ec5bf682-42/s500x750/f9c3b8cc2ebee1b3c5709c30e3d8942b0ac8f8d4.gifv" width="69" /> <br> ${\color{#A85CA1}\text{dncopy and no inspo unless friends.}}$ <br> ${\color{#C375BD}\text{if i dont respond im probably afk/offtab, Then w2i.}}$ <br> ${\color{#B464AD}\text{TFC fans iwec unless friends please.}}$ <br> ${\color{#C84DBE}\text{c+h freely even if on DNI or other.}}$
+${\color{#C06EB8}\text{Do not mention c.ai or other apps similar on me.}}$ <img src="https://64.media.tumblr.com/8ffef5cf0233f3a009502fc53565aa60/c5589d06ec5bf682-42/s500x750/f9c3b8cc2ebee1b3c5709c30e3d8942b0ac8f8d4.gifv" width="69" /> <br> ${\color{#A85CA1}\text{dncopy my ponies and no inspo unless friends.}}$ <br> ${\color{#C375BD}\text{if i dont respond im probably afk/offtab, Then w2i.}}$ <br> ${\color{#B464AD}\text{TFC fans iwec unless friends please.}}$ <br> ${\color{#C84DBE}\text{c+h freely even if on DNI or other.}}$
 </div>
 
 <p align="center">
