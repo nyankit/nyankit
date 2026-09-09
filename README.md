@@ -4,7 +4,7 @@
   
   <img src="https://64.media.tumblr.com/e4ed6be75aabb3b2542262541df457a9/6e334b685e896f5b-5c/s1280x1920/b5aa00980f3c0f63650630c76c1d999e7702f0b4.pnj" />
   
-<img src="https://media.discordapp.net/attachments/1514969642941022250/1546610929154654258/112f816121b343119f2f42070d4ba5da.gif?ex=6aa0692c&is=6a9f17ac&hm=c14e30c2b0c779f196783cd784c860581d80dc719d0ad1c1f3cee6e3286d6a42&=&width=512&height=419" />
+<img src="https://media.discordapp.net/attachments/1514969642941022250/1546610929154654258/112f816121b343119f2f42070d4ba5da.gif?ex=6aa2636c&is=6aa111ec&hm=2973ddfe50899939c3e0b77466c92b7e5b53c0b4b44d8acd51eb351828034df1&=" width="510" />
 
 <p align="center">
 ${\color{#6B5353}\text{ic; @entua108}}$
