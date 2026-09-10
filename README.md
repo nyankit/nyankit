@@ -4,7 +4,7 @@
   
   <img src="https://64.media.tumblr.com/e4ed6be75aabb3b2542262541df457a9/6e334b685e896f5b-5c/s1280x1920/b5aa00980f3c0f63650630c76c1d999e7702f0b4.pnj" />
   
-<img src="https://media.discordapp.net/attachments/1514969642941022250/1546610929154654258/112f816121b343119f2f42070d4ba5da.gif?ex=6aa2636c&is=6aa111ec&hm=2973ddfe50899939c3e0b77466c92b7e5b53c0b4b44d8acd51eb351828034df1&=" width="510" />
+<img src="https://v1.padlet.pics/3/image.webp?t=c_limit%2Cdpr_1%2Ch_630%2Cw_776&url=https%3A%2F%2Fu1.padletusercontent.com%2Fuploads%2Fpadlet-uploads-usc1%2F6236642653%2F9bce6eadc23e0da02e88d4821b20c68f%2F112f816121b343119f2f42070d4ba5da.gif%3Fexpiry_token%3D5WaHZRdGG3LkUVQGy3SZ-zdRtq89aJeottSBaF_Hii8dmxJqYDvE2-MDbblcM-ZrVekXW99RReKkJFIoMoKio3vXMFakB-so7pPoiHd-ElFUXwohz0bTMEuYMVJ1bC90eBFHITu2elQ_4CNtjpH5OE7z5c54tabIhukdwuuMBGEodntPKJabmaO8Lpx28fhAZrJV-xPB6o8J4jm67DW2NXKk4aYbZR646NU1syG8VDSrkD4ppYUbdQkAvYHAhinb" width="510" />
 
 <p align="center">
 ${\color{#6B5353}\text{ic; @entua108}}$
