@@ -26,5 +26,6 @@ ${\color{#C06EB8}\text{Do not mention c.ai or other apps similar on me.}}$ <img 
 </div>
 ${\color{#C06EB8}\text{ic; me}}$
 
-<p align="center">
-  <img src="https://64.media.tumblr.com/e4ed6be75aabb3b2542262541df457a9/6e334b685e896f5b-5c/s1280x1920/b5aa00980f3c0f63650630c76c1d999e7702f0b4.pnj" />
+<div align="center">
+
+<img src="https://64.media.tumblr.com/bbe185ed9a130ea22fd515ec8781d835/34a46646340defef-87/s2048x3072/62d62b404b70815e33e25374f3f4e5b173f1ee60.pnj" />
