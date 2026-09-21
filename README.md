@@ -1,31 +1,36 @@
-<p align="center">
+<p align="center"> 
+  <img src="https://64.media.tumblr.com/0d4d77442db763030e21920ff0a6bec8/a0685db9deec1df4-d6/s1280x1920/6aeee8e57b8dea0c790f5dc818eabba010288bac.pnj" width="549" />
+  <img src="https://64.media.tumblr.com/1b3f863c73b7391a1703c8359fe2ef68/95c6047bb46dec32-0d/s2048x3072/ab42970518ce197f177f907f54f662fccc86b726.pnj" />
   
-  <img src="https://64.media.tumblr.com/29600d89d35672aa01058c4668b997db/327384b74e3139b5-75/s500x750/f01207c937b89801a35da60c3a663553df1abf8f.gifv" width="303" />
-  
-  <img src="https://64.media.tumblr.com/e4ed6be75aabb3b2542262541df457a9/6e334b685e896f5b-5c/s1280x1920/b5aa00980f3c0f63650630c76c1d999e7702f0b4.pnj" />
-  
-<img src="https://v1.padlet.pics/3/image.webp?t=c_limit%2Cdpr_1%2Ch_630%2Cw_776&url=https%3A%2F%2Fu1.padletusercontent.com%2Fuploads%2Fpadlet-uploads-usc1%2F6236642653%2F9bce6eadc23e0da02e88d4821b20c68f%2F112f816121b343119f2f42070d4ba5da.gif%3Fexpiry_token%3D5WaHZRdGG3LkUVQGy3SZ-zdRtq89aJeottSBaF_Hii8dmxJqYDvE2-MDbblcM-ZrVekXW99RReKkJFIoMoKio3vXMFakB-so7pPoiHd-ElFUXwohz0bTMEuYMVJ1bC90eBFHITu2elQ_4CNtjpH5OE7z5c54tabIhukdwuuMBGEodntPKJabmaO8Lpx28fhAZrJV-xPB6o8J4jm67DW2NXKk4aYbZR646NU1syG8VDSrkD4ppYUbdQkAvYHAhinb" width="510" />
+<img src="https://media.discordapp.net/attachments/1548270050442612766/1551678279835066488/Untitled1604_20260921213521.png?ex=6ab2d882&is=6ab18702&hm=7391bf5c3f0418e18f9e85f1550cf18b43402274ce306abd995cbcee5c035a07&=&format=webp&quality=lossless" width="210" />
 
 <p align="center">
-${\color{#6B5353}\text{ic; @entua108}}$
-
+${\color{#FCDFA6}\text{ic; @strawberrymlkshxke ♡}}$
+  
+ <p align="center"> 
+  <img src="https://64.media.tumblr.com/88130413fece039599c6187f35322268/76f6621c96c1ea9f-0a/s2048x3072/6255fd20b4e3f504a9ecc99443bca43882cb2e7d.pnj" width="219" />   
+  
 <p align="center">
 <a href="https://skittlescutehome.straw.page/">𝔰𝔱𝔯𝔞𝔴</a>  ♡
   <a href="https://www.pinterest.com/blanketbows/">𝔭𝔦𝔫𝔱𝔢𝔯𝔢𝔰𝔱</a>  ♡
   <a href="https://bottleofmilkchan.atabook.org/">𝔞𝔱𝔞</a>  ♡
   <a href="https://guns.lol/nyankitatu">𝔤𝔲𝔫𝔰𝔩𝔬𝔩</a>  ♡
-                                                   
+    
 <div align="center">
 <details>
-<summary>${\color{#6B5353}\text{short⠀info}}$</summary>
+<summary>${\color{#FCDFA6}\text{short⠀info}}$</summary>
   
 <img src="https://64.media.tumblr.com/b5c499278243918bd2a99d8807aee064/c5589d06ec5bf682-75/s500x750/dac8696c5d21630e8d822b1254a53ef17ddd358b.gifv" width="69"/>
-${\color{#C06EB8}\text{Do not mention c.ai or other apps similar on me.}}$ <img src="https://64.media.tumblr.com/8ffef5cf0233f3a009502fc53565aa60/c5589d06ec5bf682-42/s500x750/f9c3b8cc2ebee1b3c5709c30e3d8942b0ac8f8d4.gifv" width="69" /> <br> ${\color{#A85CA1}\text{dncopy my ponies and no inspo unless friends.}}$ <br> ${\color{#C375BD}\text{if i dont respond im probably afk/offtab, Then w2i.}}$ <br> ${\color{#B464AD}\text{TFC fans iwec unless friends please.}}$ <br> ${\color{#C84DBE}\text{c+h freely even if on DNI or other.}}$
+${\color{#FCDFA6}\text{Do not mention c.ai or other apps similar on me.}}$ <img src="https://64.media.tumblr.com/8ffef5cf0233f3a009502fc53565aa60/c5589d06ec5bf682-42/s500x750/f9c3b8cc2ebee1b3c5709c30e3d8942b0ac8f8d4.gifv" width="69" /> <br> ${\color{#FCDFA6}\text{dncopy my ponies and no inspo unless friends.}}$ <br> ${\color{#F4B886}\text{if i dont respond im probably afk/offtab, Then w2i.}}$ <br> ${\color{#F4B886}\text{TFC fans iwec unless friends please.}}$ <br> ${\color{#8FA5F4}\text{c+h freely even if on DNI or other.}}$
+
 <div align="center">
-  <img src="https://v1.padlet.pics/3/image.webp?t=c_limit%2Cdpr_1%2Ch_376%2Cw_376&url=https%3A%2F%2Fu1.padletusercontent.com%2Fuploads%2Fpadlet-uploads-usc1%2F6244278382%2Ffff3624bb76f90bec44fe9ddc7aff45d%2FUntitled376_transparent.gif%3Fexpiry_token%3D5WaHZRdGG3LkUVQGy3SZ-zdRtq89aJeottSBaF_Hii8dmxJqYDvE2-MDbblcM-ZrVekXW99RReKkJFIoMoKio-FQ7f3jmNArzHDKrMxg4pmRrxczGh3quQWhXKqLvIbyHHGE0k9GiIk_KbfiQ0ujqPJfGVUcQ9UTzjL3Bif0JbzGS8m9AqncnpY17GKKUa4mE77itHdlw2LU7pa9354O3ukV-SaIVJ3Tu_uJVYRQ5F8%3D" width="300" />
+  <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/cee0cda9-1b34-42e7-9a3b-f9c3fdc9797f/dmvibdt-00855476-b02a-4455-92b2-98b6aa679025.png/v1/fill/w_347,h_564/21_09_2026_20_33_55_rec_removebg_preview_by_daintymwinii2_dmvibdt-fullview.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7ImhlaWdodCI6Ijw9NTY0IiwicGF0aCI6Ii9mL2NlZTBjZGE5LTFiMzQtNDJlNy05YTNiLWY5YzNmZGM5Nzk3Zi9kbXZpYmR0LTAwODU1NDc2LWIwMmEtNDQ1NS05MmIyLTk4YjZhYTY3OTAyNS5wbmciLCJ3aWR0aCI6Ijw9MzQ3In1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmltYWdlLm9wZXJhdGlvbnMiXX0.fpi270YBphoCSfmvASuGZZklnBfl48wYsZbMt_SFsHY" width="219" />
 </div>
-${\color{#C06EB8}\text{ic; me}}$
 
+${\color{#8FA5F4}\text{ic; me}}$
+
+<p align="center">
+  <img src="https://64.media.tumblr.com/0d4d77442db763030e21920ff0a6bec8/a0685db9deec1df4-d6/s1280x1920/6aeee8e57b8dea0c790f5dc818eabba010288bac.pnj" width="549" />
+  
 <div align="center">
-
-<img src="https://64.media.tumblr.com/bbe185ed9a130ea22fd515ec8781d835/34a46646340defef-87/s2048x3072/62d62b404b70815e33e25374f3f4e5b173f1ee60.pnj" />
+<img src="https://64.media.tumblr.com/1b3f863c73b7391a1703c8359fe2ef68/95c6047bb46dec32-0d/s2048x3072/ab42970518ce197f177f907f54f662fccc86b726.pnj" />
