@@ -11,7 +11,7 @@ ${\color{#FCDFA6}\text{ic; @strawberrymlkshxke ♡}}$
   <img src="https://64.media.tumblr.com/88130413fece039599c6187f35322268/76f6621c96c1ea9f-0a/s2048x3072/6255fd20b4e3f504a9ecc99443bca43882cb2e7d.pnj" width="219" />   
   
 <p align="center">
-<a href="https://skittlescutehome.straw.page/">𝔰𝔱𝔯𝔞𝔴</a>  ♡
+<a href="https://nyankweotu.straw.page/">𝔰𝔱𝔯𝔞𝔴</a>  ♡
   <a href="https://www.pinterest.com/blanketbows/">𝔭𝔦𝔫𝔱𝔢𝔯𝔢𝔰𝔱</a>  ♡
   <a href="https://bottleofmilkchan.atabook.org/">𝔞𝔱𝔞</a>  ♡
   <a href="https://guns.lol/nyankitatu">𝔤𝔲𝔫𝔰𝔩𝔬𝔩</a>  ♡
