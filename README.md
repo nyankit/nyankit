@@ -2,7 +2,7 @@
   <img src="https://64.media.tumblr.com/0d4d77442db763030e21920ff0a6bec8/a0685db9deec1df4-d6/s1280x1920/6aeee8e57b8dea0c790f5dc818eabba010288bac.pnj" width="549" />
   <img src="https://64.media.tumblr.com/1b3f863c73b7391a1703c8359fe2ef68/95c6047bb46dec32-0d/s2048x3072/ab42970518ce197f177f907f54f662fccc86b726.pnj" />
   
-<img src="https://media.discordapp.net/attachments/1548270050442612766/1551678279835066488/Untitled1604_20260921213521.png?ex=6ab2d882&is=6ab18702&hm=7391bf5c3f0418e18f9e85f1550cf18b43402274ce306abd995cbcee5c035a07&=&format=webp&quality=lossless" width="210" />
+<img src="https://media.discordapp.net/attachments/1548270050442612766/1551678279835066488/Untitled1604_20260921213521.png?ex=6addb142&is=6adc5fc2&hm=57caf3484a80d6789c48d026a2f536b0213187e4104292887570df65128613c6&=&format=webp&quality=lossless" width="210" />
 
 <p align="center">
 $${\color{#FCDFA6}ic;\space @strawberrymilkshxke\space ♡}$$
