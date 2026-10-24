@@ -1,22 +1,27 @@
 <p align="center"> 
   <img src="https://64.media.tumblr.com/0d4d77442db763030e21920ff0a6bec8/a0685db9deec1df4-d6/s1280x1920/6aeee8e57b8dea0c790f5dc818eabba010288bac.pnj" width="549" />
   <img src="https://64.media.tumblr.com/1b3f863c73b7391a1703c8359fe2ef68/95c6047bb46dec32-0d/s2048x3072/ab42970518ce197f177f907f54f662fccc86b726.pnj" />
-  
-<img src="https://media.discordapp.net/attachments/1548270050442612766/1551678279835066488/Untitled1604_20260921213521.png?ex=6addb142&is=6adc5fc2&hm=57caf3484a80d6789c48d026a2f536b0213187e4104292887570df65128613c6&=&format=webp&quality=lossless" width="210" />
+
+<img src="https://github.com/user-attachments/assets/a0456fb8-693d-4e9f-aecb-da311562586f" width="210" />
 
 <p align="center">
 $${\color{#FCDFA6}ic;\space @strawberrymilkshxke\space ♡}$$
-</div>
-  
+
  <p align="center"> 
-  <img src="https://64.media.tumblr.com/88130413fece039599c6187f35322268/76f6621c96c1ea9f-0a/s2048x3072/6255fd20b4e3f504a9ecc99443bca43882cb2e7d.pnj" width="219" />   
-  
+  <img src="https://64.media.tumblr.com/88130413fece039599c6187f35322268/76f6621c96c1ea9f-0a/s2048x3072/6255fd20b4e3f504a9ecc99443bca43882cb2e7d.pnj" width="219" />
+
 <p align="center">
-<a href="https://nyankweotu.straw.page/">𝔰𝔱𝔯𝔞𝔴</a>  ♡
   <a href="https://www.pinterest.com/blanketbows/">𝔭𝔦𝔫𝔱𝔢𝔯𝔢𝔰𝔱</a>  ♡
-  <a href="https://bottleofmilkchan.atabook.org/">𝔞𝔱𝔞</a>  ♡
   <a href="https://guns.lol/nyankitatu">𝔤𝔲𝔫𝔰𝔩𝔬𝔩</a>  ♡
-    
+
+<div align="center">
+
+[<img src="https://github.com/user-attachments/assets/383c1a9d-a090-428f-aa51-244d4d1a9156" width="190">](https: //pronouns.cc/@pupwood)
+[<img src="https://github.com/user-attachments/assets/bcd199bb-7a2a-4774-abf6-8d1a4e994c72" width="220">](https: //nyankweotu.straw.page/)
+[<img src="https://github.com/user-attachments/assets/1d74605e-c72a-4a7f-9543-3d8dfa302d9b" width="190">](https: //bottleofmilkchan.atabook.org/)
+
+</div>
+
 <div align="center">
 <details> <summary>$${\color{#FCDFA6}short\space info}$$</summary>
 
@@ -45,6 +50,6 @@ $${\color{#8FA5F4}ic;\space me\space }$$
 
 <p align="center">
   <img src="https://64.media.tumblr.com/0d4d77442db763030e21920ff0a6bec8/a0685db9deec1df4-d6/s1280x1920/6aeee8e57b8dea0c790f5dc818eabba010288bac.pnj" width="549" />
-  
+
 <div align="center">
 <img src="https://64.media.tumblr.com/1b3f863c73b7391a1703c8359fe2ef68/95c6047bb46dec32-0d/s2048x3072/ab42970518ce197f177f907f54f662fccc86b726.pnj" />
