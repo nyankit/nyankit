@@ -36,7 +36,11 @@ $${\color{#F4B886}TFC\space fans\space iwec\space unless\space friends\space ple
 
 $${\color{#8FA5F4}C+H\space freely\space even\space if\space on\space DNI\space or\space other.}$$
 
-$${\color{#8FA5F4}i'll\space be\space honest,\space if\space you\space argue/involve\space me\space in\space a\space situation\space PLEASE\space do\space not\space involve\space me\space on\space these\space dumb\space situations/dramas.}$$
+$${\color{#8FA5F4}i'll\space be\space honest,\space if\space you\space try\space to\space involve\space me\space in\space a\space situation}$$
+
+$${\color{#8FA5F4}PLEASE\space do\space not\space involve\space me\space on\space these\space dumb\space situations/dramas.}$$
+
+$${\color{#8FA5F4}\space i\space am\space very\space uncomfortable\space with\space it.}$$
 
 </details> </div>
 
