@@ -38,9 +38,11 @@ $${\color{#8FA5F4}C+H\space freely\space even\space if\space on\space DNI\space 
 
 $${\color{#8FA5F4}i'll\space be\space honest,\space if\space you\space try\space to\space involve\space me\space in\space a\space situation}$$
 
-$${\color{#8FA5F4}PLEASE\space do\space not\space involve\space me\space on\space these\space dumb\space situations/dramas.}$$
+$${\color{#8FA5F4}Please\space do\space not\space involve\space me\space on\space these\space dumb\space situations/dramas.}$$
 
 $${\color{#8FA5F4}\space i\space am\space very\space uncomfortable\space with\space it.}$$
+
+$${\color{#8FA5F4}\space If\space i'm\space comfortable\space with\space you\space theres\space a\space high\space chance\space i\space might\space be\space close\space to\space you.\space (FRIENDS)}$$
 
 </details> </div>
 
