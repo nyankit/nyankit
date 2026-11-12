@@ -42,6 +42,8 @@ $${\color{#8FA5F4}Please\space do\space not\space involve\space me\space on\spac
 
 $${\color{#8FA5F4}\space i\space am\space very\space uncomfortable\space with\space it.}$$
 
+$${\color{#8FA5F4}\space i\space might\space not\space defend\space anyone,\space ok?.}$$
+
 </details> </div>
 
 <div align="center">
